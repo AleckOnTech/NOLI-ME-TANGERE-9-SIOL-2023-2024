@@ -12,3 +12,8 @@ Gumawa ako ng github repository para po ito sa ikaapat na markahan. Gusto ko lan
 8. Jaden Minneah Perez
 9. Uzziel Quibin
 10. Francis Reign Lim 
+11. Dhanica Mae Gannad
+12. Elisha Lucente
+13. Carl Andrei Rabano
+14. Ryzel Victoria Fresnido
+15. Alethea Joelle Nicol
